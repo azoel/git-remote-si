@@ -4,4 +4,5 @@ Versi kedua - penambahan deskripsi modul
 
 Disaat malam yang sunyi 
 Ku termenung seorang diri
-
+Teringat paras wajahmu
+Bergetar rasanya hatiku
