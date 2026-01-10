@@ -10,3 +10,5 @@ Bergetar rasanya hatiku
 Tak Mungkin Kulupa Akan dirimu
 Kapankah kita akan ketemu
 Entah kapan kita berjumpa
+
+Aku akan selalu setia
